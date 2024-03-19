@@ -6,4 +6,4 @@
  ## Ask me about ice cream
  ## How to reach me: 0law@proton.me
  ## Pronouns: She/Her
- ## Fun fact: Love Giraffe
+ ## Fun fact: I Love Giraffes
